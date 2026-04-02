@@ -4,15 +4,15 @@ All files are created and maintained by executioner-Exec.
 
 ⸻
 
-📱 Contact & Social Media
- •	Instagram: @bq_jn￼
- •	Telegram:
- 1-	@a7adeeth￼
+📱 Contact & Social Media                     
+ •	Instagram: @bq_jn                        ￼
+ •	Telegram:                                 
+ 1-	@a7adeeth                                ￼
  2-	@free_black_tools￼
 
 ⸻
 
-🌐 My Websites
+🌐 My Websites                                
 •	🔗 https://full-test.osbvpr.workers.dev
 	
 •	🔗 https://science-gateway.pages.dev

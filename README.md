@@ -5,24 +5,25 @@ All files are created and maintained by executioner-Exec.
 ⸻
 
 📱 Contact & Social Media
-	•	Instagram: @bq_jn￼
+ •	Instagram: @bq_jn￼
 	
-	•	Telegram:
-	•	@a7adeeth￼
-	•	@free_black_tools￼
+ •	Telegram:
+ •	@a7adeeth￼
+ •	@free_black_tools￼
 
 ⸻
 
 🌐 My Websites
-	•	🔗 https://full-test.osbvpr.workers.dev
+•	🔗 https://full-test.osbvpr.workers.dev
 	
-	•	🔗 https://science-gateway.pages.dev
+•	🔗 https://science-gateway.pages.dev
 	
-	•	🔗 https://mathhub-iq.org
+•	🔗 https://mathhub-iq.org
 
 ⸻
 
 🚀 Want to Create Your Own Website?
 
 If you’re interested in building your own website, feel free to reach out:
-	•	Instagram: @bq_jn￼
+
+•	Instagram: @bq_jn￼

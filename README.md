@@ -1,5 +1,25 @@
-This place displays a variety of programming files for Tegram, Discord and others, the files belong to executioner-Exec
+Welcome! This repository contains a collection of various programming files designed for platforms such as Telegram, Discord, and more.
 
-instagram: @bq_jn
+All files are created and maintained by executioner-Exec.
 
-telegram: @a7adeeth / @free_black_tools
+⸻
+
+📱 Contact & Social Media
+	•	Instagram: @bq_jn￼
+	•	Telegram:
+	•	@a7adeeth￼
+	•	@free_black_tools￼
+
+⸻
+
+🌐 My Websites
+	•	🔗 https://full-test.osbvpr.workers.dev
+	•	🔗 https://science-gateway.pages.dev
+	•	🔗 https://mathhub-iq.org
+
+⸻
+
+🚀 Want to Create Your Own Website?
+
+If you’re interested in building your own website, feel free to reach out:
+	•	Instagram: @bq_jn￼

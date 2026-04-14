@@ -5,11 +5,11 @@ All files are created and maintained by executioner-Exec.
 ⸻
 
 📱 Contact & Social Media                     
- •  Instagram: @website_4y
+ •  Instagram: @bq_ex1
  ￼
  •	Telegram:                                 
  1-	@a7adeeth                                ￼
- 2-	@free_black_tools￼
+ 2-	@kpt_2￼
 
 ⸻
 
@@ -20,10 +20,11 @@ All files are created and maintained by executioner-Exec.
 	
 •	🔗 https://mathhub-iq.org
 
+•  🔗 https://white-falcons.osbvpr.workers.dev
 ⸻
 
 🚀 Want to Create Your Own Website?
 
 If you’re interested in building your own website, feel free to reach out:
 
-•	Instagram: @website_4y
+•	Instagram: @bq_ex1
